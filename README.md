@@ -4,6 +4,8 @@
 
 It's me <a href=https://github.com/ace-syrup>Maple</a>, I'm spam following any GitHub I see. B)
 
-<!-- No extra count😍 -->
+I'd love to interact with people that have surreal/absurdist, wordplay, and satire humor. :D
+
+<!-- 😍 -->
 
 </div>
