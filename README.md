@@ -2,9 +2,9 @@
 
 [![Hits](https://hits.sh/github.com/v067.svg?style=plastic&label=Viewers&color=615c53&labelColor=3a3737)](https://hits.sh/github.com/v067/)
 
-It's me <a href=https://github.com/ace-syrup>Maple</a>, I'm spam following any GitHub I see. B)
+It's me <a href=https://github.com/ace-syrup>Maple</a>, this is my new main. Currently on a follow spree
 
-I'd love to interact with people
+Js talk to me bc being at the spot alone is mid and makes me look like a chud
 
 <!-- 😍 -->
 
