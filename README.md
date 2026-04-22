@@ -6,8 +6,6 @@ It's me <a href=https://github.com/ace-syrup>Maple</a>, this is my new main. Cur
 
 Just talk to me, I like interacting.
 
-<a href="https://my.cbox.ws/V067" Title="Ask Me Here">Guestbook</a>
-
 <!-- 😍 -->
 
 </div>
