@@ -6,6 +6,8 @@ It's me <a href=https://github.com/ace-syrup>Maple</a>, this is my new main. Cur
 
 Just talk to me, I like interacting.
 
+<a href=https://pronouns.cc/@marching>Proverbs subtitles</a>
+
 <!-- 😍 -->
 
 </div>
