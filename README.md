@@ -4,9 +4,7 @@
 
 It's me maple (that one maple), this is my new main. Currently on a follow spree
 
-Just talk to me, I like interacting.
-
-<a href=https://pronouns.cc/@marching>Proverbs subtitles</a>
+I like interacting
 
 <!-- 😍 -->
 
