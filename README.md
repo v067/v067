@@ -5,7 +5,7 @@
 I know you want to, hit me up!<br>
 Interact anytime.
 
-<sub>Check it B)</sub>
+<sub>main fandom countryhumans</sub>
 
 <!-- 😍 -->
 
