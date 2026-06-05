@@ -5,8 +5,7 @@
 I know you want to, hit me up!<br>
 Interact anytime.
 
-<sub>***"***They are rewriting their future, and the bad judgment of others is **the opening chapter**.***"***</sub><br>
-<sub>You **don't** dictate the ending, so check your *ego* before it **destroys you**.</sub>
+<sub>Check it B)</sub>
 
 <!-- 😍 -->
 
